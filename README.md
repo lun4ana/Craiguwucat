@@ -1,7 +1,4 @@
-🕊 - hi I am craig! uwu * ¡15/14 || birthday : 29/idk
-!! 🦋 - Idm we can be friends!! don't ask!! just be friends w me!
-
-uwu!! I am more weird than jin!! 💉 
+;; ♡ <  3  🐇 Craig or amy. I mean Idm! (if u call whatever!!) age ;; 15 or 16 years! OFCC!! idm I can take whatever drawing!! on my strawpage 
 
 
-https://tallulahsite.straw.page
+➥https://tallulahsite.straw.page➥
